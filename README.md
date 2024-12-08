@@ -8,7 +8,7 @@
       </a>	
 </p>
 
-Subscribing to my YouTube would also be greatly appreciated. 
+
 
 [<img src="https://custom-icon-badges.herokuapp.com/badge/-Subscribe-red?style=for-the-badge&logo=video&logoColor=white"/>](https://jakoby.lol/yno)
 
